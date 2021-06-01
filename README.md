@@ -1,0 +1,1 @@
+# dependence-of-wages-on-the-distribution-of-time-between-rest-and-work
